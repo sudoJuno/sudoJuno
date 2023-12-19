@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sudoJuno
+- 🕹️ I love making video games!
+- 🎓 I’m currently learning at Seneca for Software Engineering
+- 🎍 Not looking to collaborate at the moment as I'm already working on my own projects :>
+- 📫 Reach me on Discord! @junom 
